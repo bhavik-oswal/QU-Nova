@@ -1,1 +1,1 @@
-# UNova
+# QU-Nova
